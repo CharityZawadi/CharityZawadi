@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+My name is Charity Zawadi,I'm currently working on softskills.I'm in Zetech University pursuing a degree in information technology.I'm looking forward to collaborate on content creators and developers.You can reach me via email;zawadicharity8@gmail.com.I love networking and the fun part is that I also love watching movies and reading novels.
 <!--
 **CharityZawadi/CharityZawadi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
